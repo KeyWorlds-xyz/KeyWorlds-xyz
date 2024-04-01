@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @KeyWorlds-xyz, founded Steve Thommes, ex Google, ex Adobe, ex DoubleClick, ex EF, ex Websight
+- 👋 Hi, I’m @KeyWorlds-xyz, founded by Steve Thommes: ex Google, ex Adobe, ex DoubleClick, ex EF, ex Websight
 
 - 👀 I’m interested in everything under the sun, especially open source AI for retail and ecommerce
 - 🌱 I’m currently learning everything I don't want to sell anything, buy anything, or process anything as a career
