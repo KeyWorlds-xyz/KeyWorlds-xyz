@@ -6,7 +6,6 @@
 - or buy anything sold or processed,
 - or process anything sold, bought, or processed,
 - or repair anything sold, bought, or processed.
-- 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me KeyWorlds.xyz@gmail.com (949) 415-4015
 - 😄 Pronouns: I am, therefore I think
