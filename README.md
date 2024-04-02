@@ -7,7 +7,7 @@
 - or process anything sold, bought, or processed,
 - or repair anything sold, bought, or processed.
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me KeyWorlds.xyz@gmail.com (949) 415-4015
+- 📫 How to reach me KeyWorlds.xyz@gmail.com (949) 415-4015 google voice or (949) 685-3075 mobile/android
 - 😄 Pronouns: I am, therefore I think
 - ⚡ Fun fact: I was on Love Connection
 
