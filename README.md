@@ -9,7 +9,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me KeyWorlds.xyz@gmail.com (949) 415-4015 google voice or (949) 685-3075 mobile/android
 - 😄 Pronouns: I am, therefore I think
-- ⚡ Fun fact: I was on Love Connection
+- ⚡ Fun fact: I was on Love Connection, "be back in 2 and 2"
 
 <!---
 KeyWorlds-xyz/KeyWorlds-xyz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
