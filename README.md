@@ -6,8 +6,8 @@
 - or buy anything sold or processed,
 - or process anything sold, bought, or processed,
 - or repair anything sold, bought, or processed.
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me KeyWorlds.xyz@gmail.com (949) 415-4015 google voice or (949) 685-3075 mobile/android
+- 💞️ I’m looking to collaborate on KeyWorlds.xyz and Khayyam.ai ...
+- 📫 How to reach me KeyWorlds.xyz@gmail.com (949) 317-7331 or (415) 766-7707
 - 😄 Pronouns: I am, therefore I think
 - ⚡ Fun fact: I was on Love Connection, "be back in 2 and 2"
 
